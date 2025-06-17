@@ -1,4 +1,6 @@
-## Hi there 👋
+wendy watterson (thank u ian )
+![wnedy](https://github.com/user-attachments/assets/8e312d51-215c-48c9-a27c-84bd4a524ead)
+
 
 <!--
 **eternalkait/eternalkait** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
