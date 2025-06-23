@@ -1,7 +1,7 @@
 ![](https://files.catbox.moe/e1bmf4.png)
 
 
-wendy watterson (thank u ian )
+( thank u ian )
 ![wnedy](https://github.com/user-attachments/assets/8e312d51-215c-48c9-a27c-84bd4a524ead)
 
 
