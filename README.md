@@ -1,7 +1,9 @@
-![](https://files.catbox.moe/e1bmf4.png)
+![](https://github.com/user-attachments/assets/1dcbcabf-43ee-40d3-b697-4f77466749f3)
 
 
-( thank u ian )
+
+
+
 ![wnedy](https://github.com/user-attachments/assets/8e312d51-215c-48c9-a27c-84bd4a524ead)
 
 
