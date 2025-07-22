@@ -1,10 +1,10 @@
-![](https://github.com/user-attachments/assets/1dcbcabf-43ee-40d3-b697-4f77466749f3)
+![](https://64.media.tumblr.com/724383159149d56eb7f101f86231e8e8/bdacb10cf78a5fda-8a/s1280x1920/9a1cce8dcff33ac4891f88d7938cf280a857e5b9.pnj)
+
+
+ ![](https://64.media.tumblr.com/88bb64767aabf2270544f9d8d02a14c5/bdacb10cf78a5fda-5e/s100x200/44daeb112a3e633d7711ce965d3c743dad5ede28.gifv) ![](https://64.media.tumblr.com/a59ba4834abef52938bc7a58a51f5e0b/bdacb10cf78a5fda-a6/s100x200/6f8f176323f5de1a2f3fd99ddf729d130d3d05c6.gifv)
 
 
 
-
-
-![wnedy](https://github.com/user-attachments/assets/8e312d51-215c-48c9-a27c-84bd4a524ead)
 
 
 <!--
