@@ -1,7 +1,7 @@
 ![](https://cdn.discordapp.com/attachments/1382945388956487752/1400862228605042688/derpydiv.png?ex=688e2e1e&is=688cdc9e&hm=9c0e6b6d42daee5548ac6579d824c947c6d8b89f6886f7b57cfcb157a722a6c1&)
 [![derp](https://cdn.discordapp.com/attachments/1382945388956487752/1400862230245019818/derpata.png?ex=688e2e1e&is=688cdc9e&hm=2393f76ae81387c40b2e1ad5a53b8ad5ba85f4fef7e3967a888299a8a64c092a&)](https://mlpderpy.atabook.org/)
 [![derpp](https://cdn.discordapp.com/attachments/1382945388956487752/1400862230517387295/derprentry.png?ex=688e2e1e&is=688cdc9e&hm=976c46529932ca707e45fac87099a6282ddd4846c6ac5f838d115b10b6e05b8d&)](https://rentry.co/mlp-derpy)
-[![derppp](https://cdn.discordapp.com/attachments/1382945388956487752/1400862229691109528/derpprns.png?ex=688e2e1e&is=688cdc9e&hm=e0e0a24ef328b21283c5ebf7242ab40b4be459fe1cc07d7199b15acc6c7395fa&)](https://pronouns.cc/@builderkitty)
+[![derppp](https://cdn.discordapp.com/attachments/1382945388956487752/1400862229691109528/derpprns.png?ex=688e2e1e&is=688cdc9e&hm=e0e0a24ef328b21283c5ebf7242ab40b4be459fe1cc07d7199b15acc6c7395fa&)](https://pronouns.cc/@mlpderpy)
 ![](https://cdn.discordapp.com/attachments/1382945388956487752/1400862228277760152/derpybottomdiv.png?ex=688e2e1d&is=688cdc9d&hm=e4f26d8fdc2d104b876acb1f44a9af36d3da5f9670f28794f35757a1bdf06f33&)
 
 
